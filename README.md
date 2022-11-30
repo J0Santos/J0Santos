@@ -6,7 +6,7 @@ I'm currently studying at 42 Lisboa :man_technologist: and I'm always looking to
 
 When I'm not in front of the screen, you can catch me playing Padel, whenever I can find 3 other people to play with that is...are you up for a game by any chance? :tennis:
 
-I also have an Hotel Management Degree, and worked in an hotel in Hong Kong for 6 months :hong_kong:
+I also have an Hotel Management Degree, and worked in a hotel in Hong Kong for 6 months :hong_kong:
 
 If you are interested in contacting me for whatever reason, you can do so through my [Linkdin](https://www.linkedin.com/in/jos%C3%A9-pedro-santos-0a3652134/)
 
