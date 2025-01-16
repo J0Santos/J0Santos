@@ -8,7 +8,7 @@ When I'm not in front of the screen, you can catch me playing Padel, whenever I 
 
 I also have an Hotel Management Degree, and worked in a hotel in Hong Kong for 6 months :hong_kong:
 
-If you are interested in contacting me for whatever reason, you can do so through my [Linkdin](https://www.linkedin.com/in/jos%C3%A9-pedro-santos-0a3652134/)
+If you are interested in contacting me for whatever reason, you can do so through my [Linkedin](https://www.linkedin.com/in/jos%C3%A9-pedro-santos-0a3652134/)
 
 <!--
 **J0Santos/J0Santos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
